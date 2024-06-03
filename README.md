@@ -10,4 +10,4 @@ Meu nome é Nicolas
 
 -00001114163971sp@al.educacao.sp.gov.br @NicolasSantana
 
-![](https://tenor.com/b0LsP.gif)
+![](https://media1.tenor.com/m/1SF3sCehQFoAAAAC/heavens-feel3-fate.gif) ![](https://i.pinimg.com/originals/f4/fb/7c/f4fb7c87fbbda43edaa214c7df842c91.gif)
